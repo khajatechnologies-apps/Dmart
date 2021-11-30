@@ -1,2 +1,3 @@
-Hai kajal i am nwuvbeouhuv to you
-please accept me
+HAi kajal 
+i have ifactivate by you 
+And you left me alone in my space
